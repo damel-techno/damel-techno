@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @damel-techno
+- 👀 I’m interested in tecnologie, robotics etc.
+- 🌱 I’m currently learning coding
+- 💞️ I want to go to the M.I.T for create my proper business
+- I'm in enko waca in senegal
+- you can send me a message on gmail: pape-dethie.seck@enkoschools.com 
